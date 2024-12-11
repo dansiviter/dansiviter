@@ -1,4 +1,6 @@
-## Hi there 👋
+## Meeeeeeeeeeeeeeee
+
+I'm a professional nerd, doing nerdy things with other nerds (who are more qualified and brighter than me, but don't tell them I said that! 😬).
 
 <!--
 **dansiviter/dansiviter** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
